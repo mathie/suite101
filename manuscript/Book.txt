@@ -13,6 +13,7 @@ winding-holes.txt
 how-children-develop-a-love-of-nature.txt
 why-are-woolly-bears-important.txt
 grandparents-outdoors-with-children.txt
+nature.txt
 a-clever-jackdaw.txt
 american-clearwing-hawkmoths.txt
 marine-gastropod-molluscs.txt

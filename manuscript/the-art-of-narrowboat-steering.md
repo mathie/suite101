@@ -1,0 +1,15 @@
+# The Art of Narrowboat Steering
+
+## Gently cruising along the cut: relaxed yet fully occupied.
+
+Push the tiller left to go right, and right to go left. Some get the hang of it immediately while others seem to struggle for ages. Add to that the thing about "it turns on a fulcrum somewhere just in front of the middle" and many give up in defeat and forever avoid the clever steering bit.
+
+After a little experience the boat seems to go wherever the steerer wants, of its own accord. There seems to be no need to move the tiller and the steerer is not aware of making any. The steerer is being misled. He or she is making directional adjustments all the time, but they are very small and are in response to "what is about to happen" more than "what just happened".
+
+If you think this too fanciful and insist that you are not fiddling around with the tiller all the time then think back to the time when you glanced away for a few seconds (maybe to study the map) and then looked up to find yourself veering wildly off course. Strange also that s a competent right-handed steerer will become an instant novice with the left hand, and vice versa. What on earth is going on?
+
+It is rather like riding a bike. You can be told and shown, but it is only by wobbling around a bit that you actually learn how. An "unconscious" bit of the brain (the cerebellum) is teaching itself what to do. When riding a bike or steering a narrowboat the senses seem to feed information directly to the muscles without any conscious thought. In the case of a right-handed steerer the eyes notice a minute deviation to the left and the cerebellum tells the right hand what to do - it has never bothered to learn how the left hand should behave!
+
+This all goes some way to explain how steering a narrowboat can be both all-absorbing and relaxing at the same time (once you have come to terms with being responsible for a 20 ton projectile!). How time seems to pass slowly while the mind wanders to and fro solving life's little problems.
+
+Maybe steering takes you into a "Zen" state, with attention given to every action in the present moment while conscious thinking is suppressed and the brain is allowed to take time off and wander.
